@@ -1,37 +1,34 @@
 # Züri Nord – Kultur von und für Anderswo
 
-Hoffentlich bist Du hier, weil ein guter Freund oder eine gute Freundin Dir diese Veranstaltung empfohlen hat. Vielleicht bist Du aber auch hier, weil ebendiese Freundin gerne über den geistigen und geografischen Rand dieser Stadt hinaus schaut? 
+Kultur Züri Nord (zürinord.org) ist ein loses Netzwerk von Kulturschaffenden und -Veranstaltern, die sich zum Ziel gesetzt haben, dort Kultur zu schaffen und zu fördern, wo sie noch wirken kann und soll; An den räumlichen und geistigen Randzonen der Stadt, zurzeit beispielsweise in 8050 Zürich und Umgebung.
 
-Zürich Nord liefert einen Veranstaltungskalender, der sich zum Ziel gesetzt hat, dort Kultur zu fördern, wo sie noch wirken kann und soll: In 8050 Zürich und Umgebung.
+Neben unserem Wirken vor Ort betreiben wir einen Veranstaltungskalender in Form eines Newsletter, den man abonnieren kann – auf Wunsch wöchentlich zusammengefasst.
 
-Und mit Deiner Unterstützung vielleicht bald für andere Randzonen in denen uns Flagship-Stores, Mulitplex-Kinos, aufsteigende Jungunternehmer und überteuerte Möchte-Gern-Thailänder Grund und Geist nicht streitig machen.
+Wir würden uns sehr freuen, wenn Du uns mit Deiner E-Mail-Adresse unterstützt.
 
 Herzlichen Dank,  
-Deine zürinord.ord-Crew
+Deine zürinord.org-Crew
 
-| Name | E-Mail |
-|:--|:--|
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
+| Name | E-Mail | Zusammenfassung |
+|:--|:--|:--|
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
